@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Colégio Estadual Dr. Arnaldo Busatto
-Carollyne Martins De Mamann
-2°C NOITE
-16 anos 
+Colégio Estadual Dr. Arnaldo Busatto*
+Carollyne Martins De Mamann*
+2°C NOITE*
+16 anos*
